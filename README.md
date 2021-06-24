@@ -18,5 +18,6 @@ Good Luck
 PS: The staircase is now fully finshed and will upload final video soonish:
 
 Part 1 video: https://www.youtube.com/watch?v=4B1bN56_SQ0
+Part 2 video: https://www.youtube.com/watch?v=zK6fZoZSqQE
 
 
